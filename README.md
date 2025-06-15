@@ -1,1 +1,1 @@
-will avaialble soon
+will available soon
